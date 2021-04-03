@@ -1,6 +1,6 @@
 # Playlists
 
-If you are interested in sharing your favorite playlist with others, I really appreciate it if you add it below; many thanks :)
+If you are interested in sharing your favorite playlists with others, I really appreciate it if you add them below; many thanks :)
 
 # Spotify
 
