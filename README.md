@@ -20,3 +20,14 @@ If you are interested in sharing your favorite playlists with others, I really a
 * [Good Cover](https://open.spotify.com/playlist/2YUJwJJkstjxzZx2FbFGw0?si=eM-qq-KvS-eDIyWjrcxNzQ): Archive of my loving cover tracks.
 * [Remixes](https://open.spotify.com/playlist/5uEOtXjLiaCWtbi90FpFqS?si=YaZ8VJISRzeviOIpCIX1iw): Remixed or mashuped tracks.
 * [Lifebeat](https://open.spotify.com/playlist/0WsgJNuWvpxOK5ktV6cknJ?si=rzRVaXeHQXKAL3br7aymzA): Persian new traditional tracks.
+
+### [Alireza Heydari](https://github.com/alirezahi)
+
+* [A Road to Goodbye](https://open.spotify.com/playlist/29QHduA3Dae21eL0BV8n07?si=fbd98799fafd4705): Songs to say goodbye.
+* [Jonob](https://open.spotify.com/playlist/083o3xr3jZHKJgBJUOWvNX?si=52b4d8913e0b473c): Listen when you are in Bandar (south of Iran).
+* [To Infinity and Beyond](https://open.spotify.com/playlist/2DRN3Twf8ckXGL3gtemUps?si=806da722402d48f5): My favourite ones.
+* [Classic](https://open.spotify.com/playlist/4uJ3GnrwOXn8PjmquKu31w?si=ee8a27dba00e47bb): 50s, 60s and so on Musics.
+* [Part of Heart](https://open.spotify.com/playlist/02AJz5HlXf6KNj5QDKEg3j?si=d990119e76244b96): Related to love.
+* [Best of Ebi](https://open.spotify.com/playlist/0Na3f8r5jl7Yb1bfnmgEFq?si=4e9e1d585e364ec4): All you need from Ebi.
+* [Party](https://open.spotify.com/playlist/1I5HhkbPwYqM0RWHNf1Rwv?si=630459e7ab39473c): Party Time.
+* [Old but Gold](https://open.spotify.com/playlist/49s4GVa6fKsmdM3mqalYv0?si=34c0f11488f04490): Persian nostalgia
