@@ -31,3 +31,8 @@ If you are interested in sharing your favorite playlists with others, we really 
 * [Best of Ebi](https://open.spotify.com/playlist/0Na3f8r5jl7Yb1bfnmgEFq?si=4e9e1d585e364ec4): All you need from Ebi.
 * [Party](https://open.spotify.com/playlist/1I5HhkbPwYqM0RWHNf1Rwv?si=630459e7ab39473c): Party Time.
 * [Old but Gold](https://open.spotify.com/playlist/49s4GVa6fKsmdM3mqalYv0?si=34c0f11488f04490): Persian nostalgia
+
+### [Mohamadreza Rostami](https://github.com/mohamadrezarostami)
+
+* [Only Listen](https://open.spotify.com/playlist/5jLI7qMFue6gpFM3n9lnsF?si=oEQM1p2nRnmQ_8rSTGOmRw): It's for when you need to be quiet and listen to something.
+* [Persian Car](https://open.spotify.com/playlist/4QDdZwebHKfaz2Q1nsIBVP?si=QFIMhIxzTLSXcH8xErjMsw): Playlist for listening in cars with more than half Iranian.
