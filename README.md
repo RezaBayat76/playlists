@@ -36,3 +36,7 @@ If you are interested in sharing your favorite playlists with others, we really 
 
 * [Only Listen](https://open.spotify.com/playlist/5jLI7qMFue6gpFM3n9lnsF?si=oEQM1p2nRnmQ_8rSTGOmRw): It's for when you need to be quiet and listen to something.
 * [Persian Car](https://open.spotify.com/playlist/4QDdZwebHKfaz2Q1nsIBVP?si=QFIMhIxzTLSXcH8xErjMsw): Playlist for listening in cars with more than half Iranian.
+
+### [Reza Jebeli](https://github.com/rezajebeli97)
+
+* [Hyper](https://open.spotify.com/playlist/5MJjmvaDAaVRUop4OPxXvP?si=WjwB5GjSR5W-pG7JE6-FiA): Don't listen on a daily basis. But, not bad for a party.
